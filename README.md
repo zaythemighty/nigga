@@ -1,2 +1,2 @@
 # nigga
-put this in the steam models Lol
+put this in the gmod models Lol
